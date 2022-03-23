@@ -1,1 +1,1 @@
-### Woof! I'm Sheriff.  Sheriff's Moving mascot and #1 mover.👋
+### I'm Sheriff!  Bestest boy and #1 mover.👋
